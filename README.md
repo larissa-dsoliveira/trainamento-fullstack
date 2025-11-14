@@ -1,1 +1,1 @@
-meu priemiro curso :)
+meu primeiro curso :)
